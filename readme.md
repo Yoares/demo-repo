@@ -1,3 +1,3 @@
-# yoo
+# yo
 
 I'am the Goat
